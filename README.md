@@ -11,16 +11,8 @@
 
 
 🔥 NLP & VUI Consultant and Web Developer 
-	
-💰 RISING TALENT at UPWORK ✅
 
 💸 LEVEL-01 SELLER of DIALOGFLOW on Fiverr
-	
-📢 Core Team Member of GOOGLE DEVELOPERS STUDENT CLUB  2022-23 | SMI UNIVERSITY
-
-✨ Favorite Tech: Dialogflow, React, Typescript, Rasa 2.O
-
-📓 I’m currently learning LLM's and Genrative AI... 😭
 
 📧 mariumkhanum0@gmail.com
 
