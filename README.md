@@ -10,9 +10,9 @@
  -->
 
 
-🔥 NLP & VUI Consultant and Web Developer 
+🔥  Web Developer 
 
-💸 LEVEL-01 SELLER of DIALOGFLOW on Fiverr
+💸 Fiverr
 
 📧 mariumkhanum0@gmail.com
 
